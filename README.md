@@ -1,1 +1,1 @@
-# stmichaelsgfc.ie
+# stmichaelsgfc
